@@ -7,9 +7,10 @@ this page is a work in progress so please bear with me
 you will usually find me on ponytown as:
 
 <ul>
-  <li>Coffee</li>
-  <li>Tea</li>
-  <li>Milk</li>
+  <li>homura akemi - pmmm</li>
+  <li>adachi rei - utau</li>
+  <li>lillie - pkmn sun & moon</li>
+  <li>peridot - steven universe</li>
 </ul>
 
 i don't really care if you take inspiration from my skins

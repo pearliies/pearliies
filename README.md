@@ -8,11 +8,11 @@ you will usually find me on ponytown as:
 
 homura akemi ( as moemura ) - puella magi madoka magica
 
+adachi rei - utau
+
 peridot - steven universe
 
 lillie - pokemon sun and moon
-
-laura apollodoros hyginus la mer - tropical rouge pretty cure
 
 i don't really care if you take inspiration from my skins
 

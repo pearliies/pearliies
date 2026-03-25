@@ -1,4 +1,4 @@
-22 years old , cis femme lesbian , she / her
+22 years old , femme lesbian , she / her
 
 i am an artist who loves sea creatures and women
 

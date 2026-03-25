@@ -6,13 +6,11 @@ this page is a work in progress so please bear with me
 
 you will usually find me on ponytown as:
 
-homura akemi ( as moemura ) - puella magi madoka magica
-
-adachi rei - utau
-
-peridot - steven universe
-
-lillie - pokemon sun and moon
+<ul>
+  <li>Coffee</li>
+  <li>Tea</li>
+  <li>Milk</li>
+</ul>
 
 i don't really care if you take inspiration from my skins
 
